@@ -1,0 +1,2 @@
+# wahyuperdamaian
+Jngan menyerah
